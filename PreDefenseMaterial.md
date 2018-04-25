@@ -1,6 +1,6 @@
 # PreDefence2018-BukirevaLiudmila
 
-[Текст ВКР](https://drive.google.com/file/d/1PIvOvxQqvvGfEBpbwxDsPea9rGm21Cf3/view?usp=sharing)
+[Текст ВКР](https://drive.google.com/file/d/166-KGud5QUhoXApNNuUc633Fvrt59tok/view?usp=sharing)
 
 [Слайдкаст](https://youtu.be/Jq1T2jd8-Ec)
 
